@@ -1,0 +1,1 @@
+# QX12-ShorsQuantumManual
